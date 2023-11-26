@@ -1,1 +1,1 @@
-Hey, this is Ali Nasir. I'm 19 years old doing major's in computer sciences from FCCU. I'm currently in my 3rd semester and got interest in sports. My favourite TV show is Suits.
+Hey, this is Mahnoor Malik. I'm 20 years old doing major's in Business from LUMS. I'm currently in my 3rd semester and got interest in Debating. My favourite TV show is Friends.
